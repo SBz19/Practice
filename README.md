@@ -1,3 +1,3 @@
 # Practice
 just a practice
-i love coffee :coffee: :)
+i love coffee :coffee: 
